@@ -212,7 +212,7 @@ You are still responsible for your website content.
 
 Always understand the local laws of the server location.
 
-## QloudHost – A Reliable DMCA Ignored Hosting Provider
+## QloudHost – A Reliable DMCA Ignored Hosting Provider (https://qloudhost.com/)
 
 If you are searching for a stable and professional offshore hosting provider, QloudHost is one of the strong options available.
 
